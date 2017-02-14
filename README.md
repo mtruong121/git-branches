@@ -4,7 +4,7 @@ These are a few of my favorite things:
 
 - Dogs
 - Raindrops on roses
-- Whiskers on bunnies
+- Whiskers cute animals
 - Bright copper kettles
 - Warm woolen mittens
 - Cats
